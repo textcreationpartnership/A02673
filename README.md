@@ -32,26 +32,26 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The liues, apprehensions, arraignments, and executions, of the 19. late pyrates Namely: Capt. Harris
+
 #####Body#####
-he loued, and reioyce in the sonne that hath sinned and laments.But to my purpose, hauing in so many
-1. The discourse of Captaine Iennings.
+he loued, and reioyce in the sonne that hath sinned and laments.But to my purpose, hauing in so manyhe loued, and reioyce in the sonne that hath sinned and laments.But to my purpose, hauing in so many
+    _ The discourse of Captaine Iennings.
 
-1. The discourse of Captaine Longcastle alias Lancaster, & them of his company that sufferd, namely William Tauerner and Iohn Moore.
+    _ The discourse of Captaine Longcastle alias Lancaster, & them of his company that sufferd, namely William Tauerner and Iohn Moore.
 
-1. The discourse of Minas.
+    _ The discourse of Minas.
 
-1. Of Thomas.
+    _ Of Thomas.
 
-1. The discourse of Captaine Downes.
+    _ The discourse of Captaine Downes.
 
-1. The euidence that was giuen against Captaine Downes.
+    _ The euidence that was giuen against Captaine Downes.
 
-1. The discourse of Captaine Halfe.
+    _ The discourse of Captaine Halfe.
 
-1. The examination of Giles Amee Marchant of St. Mallowes.
+    _ The examination of Giles Amee Marchant of St. Mallowes.
 
-1. The examination of Oliuer Picket.
+    _ The examination of Oliuer Picket.
 
 **Types of content**
 
